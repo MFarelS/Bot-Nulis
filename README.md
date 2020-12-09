@@ -1,8 +1,8 @@
 # Bot-Nulis
-Bot Nulis By Zhirrr
+Bot Nulis Write In Python By Zhirrr
 
 # Free Download
-Free Download For You ♥️
+Free Download For You ♥️♥️♥️
 
 # Follow My Instagram
 @zhirr_ajalah
